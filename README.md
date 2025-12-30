@@ -610,7 +610,7 @@ Copyright (c) 2024 Sidheshwar Yengudle
   
   <br><br>
   
-  Made with ❤️ and ☕ by Sidheshwar Yengudle © 2024
+  Made with ❤️ and ☕ by Sidheshwar Yengudle © 2025
   
   <br><br>
   
